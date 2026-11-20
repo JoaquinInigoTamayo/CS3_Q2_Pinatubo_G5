@@ -3,7 +3,7 @@
 
 
 ## Keith Esdrelon
-✝️ Flesh before, Him thereafter
+✝️ Flesh before, Him after
 
 Good morning, Sir JM!
 I am a student of 9-Pinatubo who is interested in arts, music, and sports.
